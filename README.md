@@ -34,8 +34,7 @@ Executando os testes:
 Registro de teste:
 
 
-LINK PARA O VÍDEO https://youtu.be/XC-WoZBTJQ8
-
+LINK PARA O VÍDEO https://youtu.be/io6a34uZ0qE
 Autores:
 
 
